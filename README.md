@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @knowledgeDan
+- 👋 Hi, I’m @knowledgeAbiz
 - 👀 I’m interested in mage scholarship
 - 🌱 I’m currently learning doing elemental magic
 - 💞️ I’m looking to collaborate on basic encanting
