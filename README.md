@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning doing elemental magic
 - 💞️ I’m looking to collaborate on basic encanting
 - 📫 How to reach me spells
-- 😄 Pronouns: Miaw/Meow
+- 😄 Pronouns: Whatever
 - ⚡ Fun fact: Our consequences has actions, and one day we all pay for this.
 
 <!---
