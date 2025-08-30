@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on basic encanting
 - 📫 How to reach me spells
 - 😄 Pronouns: Whatever
-- ⚡ Fun fact: Our consequences has actions, and one day we all pay for this.
+- ⚡ Fun fact: Check out my Insta @Damnish420 ;)
 
 <!---
 knowledgeDan/knowledgeDan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
