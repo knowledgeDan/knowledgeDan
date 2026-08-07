@@ -51,6 +51,8 @@ Hi! I'm **Danish Attalla**, a software engineering student from **SMKN 8 Semaran
 - Kali Linux
 
 ---
+<img alt="pacman contribution graph" src="https://raw.githubusercontent.com/KnowledgeDan/KnowledgeDan/output/pacman-contribution-graph.svg">
+---
 
 ## 🚀 Featured Projects
 
